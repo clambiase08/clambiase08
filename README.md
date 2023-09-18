@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **christina.lambiase@gmail.com**
 
-- 📄 Know about my experiences [resume](https://docs.google.com/document/d/1ORZUAe80Yv13A6VJiVgyF2Qbv62cmvFo/edit?usp=sharing&ouid=102570182021754830895&rtpof=true&sd=true)
+- 📄 Check out my experience [here](https://docs.google.com/document/d/1ORZUAe80Yv13A6VJiVgyF2Qbv62cmvFo/edit?usp=sharing&ouid=102570182021754830895&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I'm a published poet!**
 
